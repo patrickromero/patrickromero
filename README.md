@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @patrickromero
+- 👀 I’m interested in learning about code and devolping in general
+- 🌱 I’m currently looking at different programs to learn to start coding
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach me:
+- Discord- 
+- Insta- patrickjromero
